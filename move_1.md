@@ -4,6 +4,10 @@ The heat seered across the earths surface, the arora winds were up and constantl
 
 ----
 
+It seems like only yesterday I could smell the sweat exreating from every surfae of the southern landscape. I hair was blowing in the aurora winds bellowing upwards towards the sky. The earth was a gigantic frying pan, and we were two people amongst it all together intwined and bound to each other in this tainted world. I had loved someone before, but never before had someone commanded it as much as lana roskovic.
+She may have even been fully aware of this, but what started as a dual of two minds, became something more, we found ourselves lost in a moment of collision,  unable to slow down and grab ahold of each other. Just as passengers are thrown out of cars,  we were thrown out into life.  The only choice given to us, was to stare at each other as we passed , and hopefully hold onto the moment. This moment when they fell into each other's eyes.
+
+----
 The heat swelled up from the hot pavement generating a disturbingly natural aurora wind. The wind brushed up against her lose fitting clothing lifting her light blond hair.
 She protested , "I believe sweat shops can provide opportunity an opportunity for capitalism to flourish in third World Countries."
 "I Know, they Can." I replied.
